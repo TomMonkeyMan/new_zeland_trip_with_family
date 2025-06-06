@@ -4,4 +4,5 @@
 
 南岛有基督城和皇后镇。
 
+Summer: December - February
 <img width="687" alt="截屏2025-06-06 15 20 53" src="https://github.com/user-attachments/assets/986dff6f-15ca-4ed8-b416-5a31ac9e4884" />
