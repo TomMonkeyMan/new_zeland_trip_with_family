@@ -19,6 +19,9 @@ Akaroa
 
 亚伯塔斯曼国家公园
 
+但尼丁龙虾最便宜，新鲜
+
+
 地图：
 https://www.newzealand.com/assets/TNZ-Touring-Map_Web.pdf
 
