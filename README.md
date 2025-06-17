@@ -21,6 +21,8 @@ Akaroa
 
 但尼丁龙虾最便宜，新鲜
 
+皇后镇去但尼丁也不错啊...
+
 
 地图：
 https://www.newzealand.com/assets/TNZ-Touring-Map_Web.pdf
