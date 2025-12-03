@@ -32,4 +32,7 @@ https://www.newzealand.com/assets/TNZ-Touring-Map_Web.pdf
 初步：
 
 
+还是飞 奥克兰，然后转机去基督城或者皇后镇。
+
+
 
