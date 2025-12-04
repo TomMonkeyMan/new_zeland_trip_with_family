@@ -44,15 +44,24 @@ https://www.newzealand.com/assets/TNZ-Touring-Map_Web.pdf
 12 号暂定 00:25 飞，17:25 到奥克兰机场 I 9310，超经 19360 往返。
 
 13 号 从奥克兰 飞 基督城，住宿基督城。
+
 14 号 基督城附近玩耍，住宿 基督城。
+
 15 号 早上出发， 走Timaru 玩耍一下，然后 Ōamaru。住宿 Ōamaru。
+
 16 号出发 DUNEDIN，然后 周边玩耍， 住 DUNEDIN。
+
 17 号 DUNEDIN 周边玩耍。 住 DUNEDIN。
+
 18 号开车 去 Queenstown。 住 Queenstown。
+
 19 号 Queenstown 周边玩耍。住 Queenstown。
 挑一天去看看冰川。
+
 20 号 Queenstown 周边玩耍。 住 Queenstown。
+
 21 号 Queenstown 周边玩耍。 住 Queenstown。
+
 22 号 飞回奥克兰，然后飞回中国。
 
 22号 20:30 返回，23 号 5点 北京首都机场。 
