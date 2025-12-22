@@ -67,6 +67,10 @@ https://www.newzealand.com/assets/TNZ-Touring-Map_Web.pdf
 22号 20:30 返回，23 号 5点 北京首都机场。 
 
 
+
+
+
+
 定稿版本：
 
 2.11 从北京飞 Aukland，在Auckland 住宿，只在机场附近活动，不租车
