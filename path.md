@@ -2,12 +2,16 @@
 
 2.11 从北京飞 Aukland，在Auckland 住宿，只在机场附近活动，不租车
 
-2.12 从Aukland飞 QueensTown，在QueensTown取租车住宿，购物
+2.12 从Aukland飞 QueensTown，在QueensTown 取车 住宿
+- 购物 Remarkables Park Town Centre
+- Queenstown Gardens
 
 2.13 QueensTown 周边玩耍，在QueensTown住宿
+- Glenorchy Wharf -> Red Shed -> Glenorchy Lagoon Walkway (half 15 min) -> Isengard Lookout -> Sapphire Lake
+- 箭镇（Arrowtown）
+
 2.14 早7点出发 开车去 Dunedin，中途休息一下，晚上到达在 Dunedin 住宿
-- 用 Google Maps 开启“避开收费/高速”以外的选项，选 SH6 + SH1 绕行路线（虽然稍远但比 Crown Range 平缓）
-- 中午在 Gore（有干净休息区）或 Balclutha 吃饭
+Queenstown → Cromwell → Alexandra → Ranfurly → Palmerston → Dunedin
 - 下午抵达后 不再安排任何活动，晚餐就近解决，早点休息
 
 2.15–2.16（Dunedin 两天）	每天只安排 1个轻松景点（如一天去 Otago Peninsula 跟小巴团，另一天逛市区+城堡），留出午休时间
