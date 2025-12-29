@@ -90,9 +90,25 @@ https://www.newzealand.com/assets/TNZ-Touring-Map_Web.pdf
 2.18–2.19（Christchurch）	完全放松：平底船、电瓶车游公园、Sumner 海滩咖啡馆看海，最后一天还车
 
 
-2.20 飞回 Auckland，在Auckland休息
+2.20 飞回 Auckland，在Auckland休息，逛一下
 
 2.21 从 Auckland回 北京
+
+
+机票：
+国航 2.11 飞 奥克兰 2.21 奥克兰回北京
+
+新航 2.12 11:35 飞 皇后镇 
+2.20 基督城回奥克兰
+
+租车 2.12 皇后镇 pickup 2.20 基督城还车
+
+住宿 
+2.11 奥克兰 holiday inn 15:00 checkin 3 rooms 11:00
+
+2.20 奥克兰 holiday inn 15:00 checkin 3 rooms with breakfast
+
+
 
 
 
