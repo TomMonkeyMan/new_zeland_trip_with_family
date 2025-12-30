@@ -105,6 +105,9 @@ https://www.newzealand.com/assets/TNZ-Touring-Map_Web.pdf
 
 住宿 
 2.11 奥克兰 holiday inn 15:00 checkin 3 rooms 11:00
+2.12-15 Queenstown 3 nights
+2.15-2.17 Dunedin 2 nights
+2.17-2.20 Christchurch 3 nights
 
 2.20 奥克兰 holiday inn 15:00 checkin 3 rooms with breakfast
 
